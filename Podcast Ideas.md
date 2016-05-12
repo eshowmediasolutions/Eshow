@@ -1,8 +1,8 @@
 #Podcast Ideas
 
->The podcasts are just a compilation of whatever we want to talk about
+>The podcasts are a weekly content show, there is no democracy here, we litteraly just pull one off of the list and use it, So no voting and democracy, if you want to suggest use youtube comments.
 >
-> — Coleman Erickson, 2016
+> Nick Venner, 2016
 
 ##Enviorment
 
