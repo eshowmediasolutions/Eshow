@@ -5,6 +5,7 @@
 > — Eshow Media Solutions, 2016
 
 ##Enviorment
+#####PENDING APROVAL FROM @management
 
   - Global Warming
 
@@ -21,7 +22,7 @@
   - Github, what is it good for?
 
 ##Politics
-####WE MAY NOT DO ONE OF THESE AGAIN PENDING APROVAL FROM @managemnet
+#####PENDING APROVAL FROM @management
 
   - How bad is Canada
 
