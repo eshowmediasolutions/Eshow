@@ -2,7 +2,7 @@
 
 >The podcasts are just a compilation of whatever we want to talk about
 >
-> @colemanerickson, 2015
+> — Coleman Erickson, 2016
 
 ##Enviorment
 
