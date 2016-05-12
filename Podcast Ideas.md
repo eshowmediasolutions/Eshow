@@ -2,7 +2,7 @@
 
 >The podcasts are a weekly content show, there is no democracy here, we litteraly just pull one off of the list and use it, So no voting and democracy, if you want to suggest use youtube comments.
 >
-> Nick Venner, 2016
+> — Eshow Media Solutions, 2016
 
 ##Enviorment
 
